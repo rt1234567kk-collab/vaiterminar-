@@ -1,2 +1,1 @@
-# vaiterminar-
-pedido de desculpas
+CONSUMIDOR
